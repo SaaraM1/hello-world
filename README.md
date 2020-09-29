@@ -1,2 +1,7 @@
 # hello-world
-Trying to learn something...
+
+
+Kukkuluuruu kurkista, kukkuluuruu kurkista...
+Kuka tuli ulos purkista?
+Joku joka on aivan pihalla, mutta niiiiiiin innoissaan!
+:)
